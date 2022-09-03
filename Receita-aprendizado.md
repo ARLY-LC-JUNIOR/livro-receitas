@@ -1,4 +1,4 @@
-### **Receita-aprendizado** **Strogonoff de Frango** :chicken:
+### **Receita-aprendizado** **Strogonoff de Frango** :chicken: 
 
 ##### Ingredientes
 
